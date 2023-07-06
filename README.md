@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ZypherKnight
-- 👀 I’m interested in Valorant and Anime, very normal topics
+- 👀 I’m interested in Video Editing and Coding, very normal topics
 - 🌱 I’m currently learning JavaScript
 - 💞️ I’m looking to collaborate on JavaScript
 - 📫 How to reach me email me at lavapopxd@gmail.com!
